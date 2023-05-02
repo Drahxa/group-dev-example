@@ -1,1 +1,6 @@
-#Hii im Rupa, i like food and watching kdramas and i really like Kpop c:
+
+# Rupa
+
+Fun Fact: 
+    - it is impossible for most people to lick their own elbow
+    - shrimp's heart is in its head
